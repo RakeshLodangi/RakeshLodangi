@@ -16,7 +16,7 @@
 
 - 👨‍💻 All of my projects are available at [Github](https://github.com/RakeshLodangi)
 
-- 📫 How to reach me: **rakeshlodangi9247@gmail.com** | [LinkedIn](www.linkedin.com/in/rakesh-lodangi)
+- 📫 How to reach me: **rakeshlodangi9247@gmail.com** | [LinkedIn](https://linkedin.com/in/rakesh-lodangi)
 
 ---
 
